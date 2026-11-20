@@ -81,7 +81,7 @@ OEM, ODM, and long-term project partnerships are welcome.
 
 ## 🔗 Official Website
 
-🌐 https://www.olearybath.com
+🌐 https://www.olearypro.com
 
 For OEM inquiries or project discussions, please contact us through the official website.
 
